@@ -2,7 +2,7 @@
 
 Last updated: 07 February 2026
 
-This Privacy Policy describes how Winter Sport Puzzle (the “App”) handles user data.
+This Privacy Policy describes how B10 (the “App”) handles user data.
 
 ## 1. Developer Information
 Developer: Michael –   
