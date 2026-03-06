@@ -1,4 +1,4 @@
-# Privacy Policy – Winter Sport Puzzle
+# Privacy Policy – B10
 
 Last updated: 07 February 2026
 
